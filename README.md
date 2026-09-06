@@ -6,4 +6,5 @@ i also like splatterpunk, extreme horror, cartoons, (some) anime, toontown onlin
 my carrd should be linked on my page
 
 thanks
-<img width="400" src="https://i.ibb.co/WN9YSYvt/tumblr-8c6c09711fd25563d3fa81f8affc780e-e14e3869-250.gif" alt="namehere">
+
+<img width="400" src="[https://i.pinimg.com/736x/04/c7/a4/04c7a4d833986a5609a842cdfb86b84c.jpg](https://i.ibb.co/d4MNgvLj/7cb6ddbc1eb65077a1db9fad3dbdad3c.jpg)" alt="nick cave">
