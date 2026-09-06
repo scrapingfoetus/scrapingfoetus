@@ -2,7 +2,7 @@ hi idk how to code or anything so this is gonna look really bad.
 
 i like music a lot. im typically online as industrial ponies
 
-i also like splatterpunk, extreme horror, cartoons, (some) anime, toontown online, animatronic bands, venture bros, man from u.n.c.l.e, power rangers, etc. i like a lot of things, i cant list it all here.
+i also like splatterpunk, extreme horror, slasher films, cartoons, (some) anime, toontown online, animatronic bands, venture bros, man from u.n.c.l.e, power rangers, etc. i like a lot of things, i cant list it all here.
 
 if you have a matching pony feel free to hug and cuddle and kiss idk what yoy call it but that stuff. i like basically all ships of anything and dont care about rpf so no matter what i will reciprocate. talk to me, reach out.
 
