@@ -6,6 +6,8 @@ i also like splatterpunk, extreme horror, cartoons, (some) anime, toontown onlin
 
 if you have a matching pony feel free to hug and cuddle and kiss idk what yoy call it but that stuff. i like basically all ships of anything and dont care about rpf so no matter what i will reciprocate. talk to me, reach out.
 
+if you wanna do shipy stuff with my pony be like, 18+ though like please idk LOL
+
 i fear that i seem a bit intimidating but i promise you i am extremely immature and childish
 
 i am an adult
