@@ -28,6 +28,8 @@ i think its dumb to have to say this as idk whos copying ponies but dont copy my
 
 my carrd should be linked on my page
 
+edit no my carrd isnt i lied sorry. well just make me whatever you want me to be in your head okay......i have like crazy ocd and ptsd that makes me scared of people so i think i removed it LOL
+
 thanks for reading.
 
 <img width="400" src="https://i.ibb.co/d4MNgvLj/7cb6ddbc1eb65077a1db9fad3dbdad3c.jpg" alt="nick cave">
