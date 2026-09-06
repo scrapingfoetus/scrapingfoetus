@@ -6,4 +6,4 @@ i also like splatterpunk, extreme horror, cartoons, (some) anime, toontown onlin
 my carrd should be linked on my page
 
 thanks
-<img width="400" src="[https://media1.tenor.com/m/2k99zKb6S00AAAAC/loki-sylvie.gif](https://i.ibb.co/WN9YSYvt/tumblr-8c6c09711fd25563d3fa81f8affc780e-e14e3869-250.gif)" alt="jim good night gif">
+<img width="400" src="https://i.ibb.co/WN9YSYvt/tumblr-8c6c09711fd25563d3fa81f8affc780e-e14e3869-250.gif" alt="namehere">
