@@ -12,8 +12,6 @@ i am an adult
 
 18+ to interact please. only exception is if you find me on the safe server. feel free to reach out no matter what then in that case, just know i will not add you on platforms outside of ponytown if you arent 18.
 
-if you wanna talk outside of ponytown please whisper and communicate that :) i will happily add you if youre 18+ :)
-
 if you have a matching pony feel free to hug and cuddle and kiss idk what yoy call it but that stuff. i like basically all ships of anything and i dont mind rpf so no matter what i will reciprocate. talk to me, reach out.
 
 if you wanna do shipy stuff with my pony be like, 18+ though like please idk LOL
