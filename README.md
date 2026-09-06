@@ -24,9 +24,7 @@ i think its dumb to have to say this as idk whos copying ponies but dont copy my
 
 ----------------------------------------------------
 
-my carrd should be linked on my page
-
-edit no my carrd isnt i lied sorry. well just make me whatever you want me to be in your head okay......i have like crazy ocd and ptsd that makes me scared of people so i think i removed it LOL
+my last fm is on my page but i dont listen to anything cool i just listen to the same 4 artists and same like 5 songs on loop.
 
 thanks for reading.
 
