@@ -2,7 +2,7 @@ hi idk how to code or anything so this is gonna look really bad.
 
 i like music a lot. im typically online as industrial ponies
 
-i also like splatterpunk, extreme horror, slasher films, cartoons, (some) anime, toontown online, animatronic bands, venture bros, man from u.n.c.l.e, power rangers, etc. i like a lot of things, i cant list it all here. im just a man of all trades.
+i like a lot of things, im a man of all trades.
 
 i have ponies from einstürzende neubauten, misc industrial artists and related, nick cave and the bad seeds, the birthday party, mortal kombat, swans, venture bros, gorillaz, the beatles, pj harvey, lydia lunch, throbbing gristle, power rangers time force, fortnite, boyfriend to death, price of flesh, the boys, duck! the carbine high massacre, phantom of the paradise, persona 2, clerks 2, the man from u.n.c.l.e, far cry 5, invincible, the passenger, hatred, postal, toontown online/rewritten, and lady and the tramp.
 
