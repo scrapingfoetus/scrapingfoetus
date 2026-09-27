@@ -28,8 +28,6 @@ i think its dumb to have to say this as idk whos copying ponies but dont copy my
 
 my last fm is on my page but i dont listen to anything cool i just listen to the same 4 artists and same like 5 songs on loop.
 
-also my strawpage but that isnt as fun
-
 thanks for reading.
 
 <img width="400" src="https://i.ibb.co/d4MNgvLj/7cb6ddbc1eb65077a1db9fad3dbdad3c.jpg" alt="nick cave">
